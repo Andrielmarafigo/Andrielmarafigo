@@ -11,7 +11,7 @@
 
 - 🔭 Em constante aprimoramento pessoal e profissional.
 - 💻 Atualmente explorando conhecimentos em diversas tecnologias.
-- 🎓 Estudante do 4º período no Unisenai PR, com foco em inovação e desenvolvimento tecnológico.
+- 🎓 Estudante do 5º período no Unisenai PR, com foco em inovação e desenvolvimento tecnológico.
 - ✈️ Sempre aberto a novas oportunidades e desafios no mercado de tecnologia.
 
 ###
